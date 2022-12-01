@@ -1,1 +1,1 @@
-Executable file type
+Multiplie permission to various users
