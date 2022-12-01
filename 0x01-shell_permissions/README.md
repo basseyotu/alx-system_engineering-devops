@@ -1,1 +1,1 @@
-007 beats John Doe
+mirror on the wall, here we go again
