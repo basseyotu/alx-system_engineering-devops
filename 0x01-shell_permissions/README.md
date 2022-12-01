@@ -1,1 +1,1 @@
-Multiplie permission to various users
+adds everyone
