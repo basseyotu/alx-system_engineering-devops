@@ -1,1 +1,1 @@
-My name is Bond, James Bond
+007 beats John Doe
