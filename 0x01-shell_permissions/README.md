@@ -1,1 +1,1 @@
-mirror on the wall, here we go again
+Look deeper into the mirror
